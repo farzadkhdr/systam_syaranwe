@@ -1,1 +1,0 @@
-# systam_syaranwe
